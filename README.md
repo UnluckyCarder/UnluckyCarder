@@ -1,4 +1,4 @@
-My interests and topics of interest:
+My interests:
 1-Hardware
 2-Hardware
 3-Hardware
